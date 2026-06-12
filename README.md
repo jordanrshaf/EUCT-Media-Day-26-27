@@ -1,1 +1,1 @@
-# EUCT-Media-Day-26-27
+# EUCT Media Day 26-27
